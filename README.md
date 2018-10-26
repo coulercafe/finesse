@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Sohpistication and UC Merced
 
 ### Markdown
 
