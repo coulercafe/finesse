@@ -1,4 +1,4 @@
-## Sohpistication and UC Merced
+## Sohpistication & UC Merced
 
 ### Markdown
 
